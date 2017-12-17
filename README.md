@@ -13,4 +13,4 @@ Enjoy it!
 
 Welcome to my blog~
 
-https://zhaoxuhui.top
+http://zhaoxuhui.top
